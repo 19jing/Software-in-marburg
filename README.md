@@ -1,4 +1,6 @@
 Software-in-marburg
 ===================
 
-Jing in marburg, studiere Informatik.
+Jing in marburg
+
+I am Programmer,I have no life!! :)
